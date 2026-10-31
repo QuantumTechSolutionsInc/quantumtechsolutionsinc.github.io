@@ -1,1 +1,1 @@
-# quantumtech-ai.github.io
+# quantumtechsolutionsinc.github.io
